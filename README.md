@@ -1,1 +1,1 @@
-# BryanASC20.github.io
+# https://bryanriv214.github.io/LR_Site/
